@@ -17,4 +17,11 @@ Overall, the event was a success. However, I do believe that some improvement ca
 ## Documentation  
 
 **Video**  
-  [Click Here to Watch]()
+  [Click Here to Watch](https://drive.google.com/file/d/1VlfhRa5oZmli_2r2AxjW4be7HYrP5r5B/view?usp=sharing)
+
+**Images**
+
+  ![photo_2025-12-31_20-46-16](https://github.com/user-attachments/assets/4dbde113-5584-494c-bebf-1f4125c02ee2)  
+  ![photo_2025-12-31_20-46-23](https://github.com/user-attachments/assets/9b612d97-e6c0-451c-b17f-23a7e4845348)  
+  ![photo_2025-12-31_20-46-07](https://github.com/user-attachments/assets/8b8db5d5-c4ea-4cc5-b12a-6b0815b13923)  
+
